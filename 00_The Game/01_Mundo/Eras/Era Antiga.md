@@ -1,0 +1,1 @@
+A época dos reis, onde grandes monumentos foram erguidos por todo o planeta. Especula-se que a população estava mais "próxima do divino" e possuía um conhecimento mais profundo do Arcano.
