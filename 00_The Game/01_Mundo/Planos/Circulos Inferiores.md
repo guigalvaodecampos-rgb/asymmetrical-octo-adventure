@@ -1,0 +1,1 @@
+Os Círculos Inferiores são planos para onde foram banidos os Deuses Esquecidos que lutaram com mais afinco contra a insurreição dos Novos Deuses. Desde então conhecidas como “Deuses Caídos”, essas divindades perderam a Guerra Divina contra os Novos Deuses, passando a ser consideradas “praticantes malignas de magia profana”.
