@@ -1,0 +1,1 @@
+Poucas cidades existem atualmente e a maioria foi construída em volta de sítios arqueológicos. As maiores conseguiram se estabelecer nas estruturas das antigas, após sucessivas expedições para "limpar" as áreas.
