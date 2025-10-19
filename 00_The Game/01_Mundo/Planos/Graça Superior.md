@@ -1,0 +1,1 @@
+Territórios divinos que pertenciam aos Deuses Esquecidos, antes que os Novos Deuses os reivindicassem na Era Primeva. Os Novos Deuses podem deixar a Graça Superior e ocupar outros planos, mas, na era atual, precisam sacrificar algo importante para fazer isso. Tais sacrifícios causaram algumas das calamidades que assolaram o Plano Mortal nos últimos milênios.
